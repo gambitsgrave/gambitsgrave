@@ -1,5 +1,5 @@
 wip
-call me koe or gambit
+call me gambit
 i like geometry dash
 
 FAT GC L L L L ALL L'S
