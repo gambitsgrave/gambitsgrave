@@ -4,7 +4,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lpqcqmdyr5q65giktii47pcvwy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=e848c0&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎hi
+‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎i like geometry dash
 
 ic sulfurricacid_
 
